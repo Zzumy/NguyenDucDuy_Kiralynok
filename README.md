@@ -1,1 +1,1 @@
-# NguyenDucDuy_Kiralynok
+# NguyenDucDuy
